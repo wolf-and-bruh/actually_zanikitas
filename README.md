@@ -7,6 +7,6 @@
 
 ### other things
 
-- pronouns: he/him
+- pronouns: he/him (was femka before)
 - that's all (and yeah stop spamming my PRs lmao)<br>
 ![](https://komarev.com/ghpvc/?username=zanikitas)
